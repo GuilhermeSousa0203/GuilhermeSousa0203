@@ -1,3 +1,3 @@
 - 👋 Olá, eu sou @GuilhermeSousa0203
 - 👀 Adoro aprender tenologias e desenvolver aplicações WEB
-- 📫 Veja meu perfil no linkedin: https://www.linkedin.com/in/guilherme-sousa-197b7b201/
+- 📫 Perfil no linkedin: https://www.linkedin.com/in/guilherme-sousa-197b7b201/
